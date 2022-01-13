@@ -5,4 +5,4 @@
 
 
 *Screenshot*
-<img src="https://prnt.sc/26d78h8"></img>
+<img src="https://i.imgur.com/63Z3HwN.png"></img>
